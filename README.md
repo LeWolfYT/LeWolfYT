@@ -1,4 +1,4 @@
-hello it's me, LeWolfYT (long e pronounciation)
+hello it's me, LeWolfYT (short e pronounciation)
 
 how to reach me: send electronic post cards to ciblox3@gmail.com
 
